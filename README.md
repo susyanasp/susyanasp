@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @susyanasp
-- 👀 I’m interested in Digital Marketing, Data Science, Artificial Intelliegence, Machine Learning
-- 🌱 I’m currently learning Digital Learning, Data Science, Programming
+- 👀 I’m interested in Digital Marketing, Data Science, Artificial Intelligence, Machine Learning
+- 🌱 I’m currently learning Digital Marketing, Data Science, Programming
 - 💞️ I’m looking to collaborate on every company where I can improve my skills
 - 📫 How to reach me +6285716803513 / susyanasripadmi@gmail.com
 
